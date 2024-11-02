@@ -1,0 +1,1 @@
+# mangaboya-setting
